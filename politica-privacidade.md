@@ -1,6 +1,6 @@
 POLÍTICA DE PRIVACIDADE - MOTOKA
 
-Última atualização: 24 de Maio de 2024
+Última atualização: 06 de Maio de 2026
 
 A equipe do MotoKa valoriza a sua privacidade. Esta Política de Privacidade explica como lidamos com as informações no nosso aplicativo de gestão de veículos.
 
